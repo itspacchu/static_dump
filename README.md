@@ -17,3 +17,26 @@
 
 ![Homelab](https://github.com/itspacchu/static_dump/assets/37984032/6001670d-a193-40c3-b43e-101928ee85c8)
 ![image](https://github.com/itspacchu/static_dump/assets/37984032/6263c3a5-5376-42b7-934d-c341e9b5557d)
+
+<img width="605" alt="Screenshot 2024-03-29 at 16 31 21" src="https://github.com/itspacchu/static_dump/assets/37984032/13097803-a7d4-48a6-9309-63799f505cee">
+<img width="860" alt="Screenshot 2024-03-29 at 16 38 57" src="https://github.com/itspacchu/static_dump/assets/37984032/f6cd2419-467e-4dad-bf26-b7a0974c9a30">
+<img width="603" alt="Screenshot 2024-03-29 at 16 41 15" src="https://github.com/itspacchu/static_dump/assets/37984032/73e70f9f-884c-4803-a586-3f9608eaf5c6">
+<img width="603" alt="Screenshot 2024-03-29 at 16 42 47" src="https://github.com/itspacchu/static_dump/assets/37984032/de1993ed-91fd-4b6e-9fc8-83b4c28e3449">
+
+![image](https://github.com/itspacchu/static_dump/assets/37984032/96429f43-2b23-4ae2-a253-e2f2559747ec)
+
+![image](https://github.com/itspacchu/static_dump/assets/37984032/420bb006-c880-44b8-abd5-8a8baf37183b)
+
+![image](https://github.com/itspacchu/static_dump/assets/37984032/da337f06-74ad-4229-8684-fa2b6658d8df)
+
+
+<img width="614" alt="Screenshot 2024-03-29 at 16 46 37" src="https://github.com/itspacchu/static_dump/assets/37984032/adc726c4-74e7-4e91-acdf-f80c88163e4d">
+
+
+<img width="562" alt="Screenshot 2024-03-29 at 16 57 59" src="https://github.com/itspacchu/static_dump/assets/37984032/48cfb243-41cc-4f5f-bac4-ebcc46bdd910">
+
+![image](https://github.com/itspacchu/static_dump/assets/37984032/1f0602c1-550f-4a4c-8ae4-9d02d74bae43)
+
+<img width="868" alt="Screenshot 2024-03-29 at 17 13 35" src="https://github.com/itspacchu/static_dump/assets/37984032/7a6efb53-953a-41f1-83ef-0d4d96ca1052">
+<img width="285" alt="Screenshot 2024-03-29 at 17 27 37" src="https://github.com/itspacchu/static_dump/assets/37984032/e55bf6d1-bd4c-476b-966b-6ec3d46237ed">
+
