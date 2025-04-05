@@ -18,7 +18,8 @@
 ![cool_gif_right](https://github.com/itspacchu/static_dump/assets/37984032/52a2f2e0-45fe-445b-8492-14a3a164df8b)
 
 ![Homelab](https://github.com/itspacchu/static_dump/assets/37984032/6001670d-a193-40c3-b43e-101928ee85c8)
-![image](https://github.com/itspacchu/static_dump/assets/37984032/6263c3a5-5376-42b7-934d-c341e9b5557d)
+![image](https://github.com/itspacchu/static_dump/assets/37984032/6263c3a5-5376-42b7-934d-c341e9b5557d)<img width="816" alt="Screenshot 2025-04-05 at 14 21 59" src="https://github.com/user-attachments/assets/2328f6d5-b985-464d-a3cd-21427bb353d0" />
+
 
 <img width="605" alt="Screenshot 2024-03-29 at 16 31 21" src="https://github.com/itspacchu/static_dump/assets/37984032/13097803-a7d4-48a6-9309-63799f505cee">
 <img width="860" alt="Screenshot 2024-03-29 at 16 38 57" src="https://github.com/itspacchu/static_dump/assets/37984032/f6cd2419-467e-4dad-bf26-b7a0974c9a30">
