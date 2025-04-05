@@ -31,6 +31,8 @@
 
 ![image](https://github.com/itspacchu/static_dump/assets/37984032/da337f06-74ad-4229-8684-fa2b6658d8df)
 
+<img width="841" alt="Screenshot 2025-04-05 at 13 47 14" src="https://github.com/user-attachments/assets/7f7ff948-e4c0-4a7b-9c24-c675d621d404" />
+
 
 <img width="614" alt="Screenshot 2024-03-29 at 16 46 37" src="https://github.com/itspacchu/static_dump/assets/37984032/adc726c4-74e7-4e91-acdf-f80c88163e4d">
 
