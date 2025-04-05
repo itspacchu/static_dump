@@ -6,6 +6,7 @@
 ![image](https://github.com/itspacchu/static_dump/assets/37984032/bbbc063e-f735-44bd-96a3-3b382eea13e5)
 ![image](https://github.com/itspacchu/static_dump/assets/37984032/f66a7284-945f-4e6a-8bdb-23cf94c02df0)
 
+<img width="586" alt="Screenshot 2025-04-05 at 14 48 01" src="https://github.com/user-attachments/assets/24031f13-415a-4d99-94ed-86f10cd34718" />
 
 
 
